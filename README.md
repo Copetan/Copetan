@@ -1,1 +1,1 @@
-How do i use this
+how do I use this
